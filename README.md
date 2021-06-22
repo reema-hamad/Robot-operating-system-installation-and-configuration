@@ -65,4 +65,8 @@ ubuntu قمت بتنصيب الاصدار 18
 
 
 
+https://user-images.githubusercontent.com/85697922/122991506-c605bd80-d3ad-11eb-9856-0a8e4bd88b27.mp4
+
+
+
 
